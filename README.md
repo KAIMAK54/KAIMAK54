@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @KAIMAK54
 - 👀 I’m interested in crypto
 - 🌱 I’m currently learning is
-- 💞️ I’m looking to collaborate on futur
 - 📫 How to reach me ...
 
 <!---
